@@ -6,4 +6,4 @@ Something unique about myself: I like to teach the skills to the students by enj
 +++++
 Name: Karah Culley
 Birthplace: Norfolk, Virginia
-Something unique about myself: I have three pet frogs and I am learning Swedish. 
+Something unique about myself: I have three pet frogs and I am learning Swedish.  
